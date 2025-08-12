@@ -1,0 +1,1 @@
+# TREND.-TradeGenius07
